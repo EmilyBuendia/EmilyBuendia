@@ -10,4 +10,5 @@
 
 
 #### Será un placer colaborar en distintos proyectos y crecer juntos profesionalmente! :smile:
+[![](https://media.tenor.com/PP9v7VIs6R4AAAAd/scaler-create-impact.gif)](https://media.tenor.com/PP9v7VIs6R4AAAAd/scaler-create-impact.gif)
 
